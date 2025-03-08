@@ -1,4 +1,4 @@
-# 🎮 Pet Simulator 99 Script 🐾 | Auto Farm, Dupe, Auto Event | Mobile & PC
+# Pet Simulator 99 Script 🐾 Auto Farm, Dupe, Auto Event | Mobile/PC
 
 [![Download Pet Sim 99 Script](https://img.shields.io/badge/Download-Pet%20Sim%2099%20Script-blue?style=for-the-badge)](https://cheatheaven.org/go/pet-simulator-99-script/)
 
